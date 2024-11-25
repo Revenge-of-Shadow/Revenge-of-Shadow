@@ -1,4 +1,4 @@
-I am Viacheslav. Electrician, coder.
+I am Viacheslav. Electrician, visual artist, novelist, coder.
 Discord ID: Electroheart#6982 (elegantmisfit)
 
 <!---
